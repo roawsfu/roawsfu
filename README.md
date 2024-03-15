@@ -1,4 +1,4 @@
-### ruyamoawsfu
+### - **Discord**: [ruyamoawsfu](https://discord.com/users/ruyamoawsfu)
 
 <!--
 **roawsfu/roawsfu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
